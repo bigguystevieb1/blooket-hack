@@ -5,5 +5,5 @@ If you have any concerns or find something wrong please @ me in the issues tab.
 I will usually respond within the week if not the same day you comment. Thanks!! :)
 
 THE VIDEO BELOW WILL SHOW YOU HOW TO COPY THE HACK LINK EASIER:
-![Screenshot 2022-02-23 1 13 30 PM](https://user-images.githubusercontent.com/99492003/155583989-512ed9dd-d22c-4d81-93e3-a5333e1bcd7a.png)
+![ezgif com-gif-maker](https://user-images.githubusercontent.com/99492003/155584322-4da6618d-31a5-4632-9507-5ec665560061.gif)
 
