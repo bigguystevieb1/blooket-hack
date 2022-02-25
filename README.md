@@ -2,7 +2,7 @@
 
 **MAKE SURE TO TYPE "Javascript:" in the search bar before you paste the link or else the hacks won't work!**
 
-GOOD UPDATE!! I have fixed the "Max Tokens And XP." & "Spam Duplicate Boxes" Please let me know if they don't work for you.
+GOOD UPDATE!! I have fixed the "Max Tokens And XP." & "Spam Open Boxes" Please let me know if they don't work for you.
 
 UPDATE!! I am aware of some of the hacks not working, I am currently working on trying to fix some of them. Thank you for your patience.
 
