@@ -1,5 +1,7 @@
 # readme-section-important
 
+GOOD UPDATE!! I have fixed the "Max Tokens And XP." Please let me know if it doesn't work for you.
+
 UPDATE!! I am aware of some of the hacks not working, I am currently working on trying to fix some of them. Thank you for your patience.
 
 UPDATE!! As Of 9:30AM On Friday, February 25th: This may take awhile to fix. Thank you for your patience. I will be deleting the hacks for right now, I will post them back up when I fix them. Thank you again.
