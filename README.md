@@ -2,8 +2,7 @@
 
 **MAKE SURE TO TYPE "Javascript:" in the search bar before you paste the link or else the hacks won't work!**
 
-**UPDATE!! As Of 9:38AM On Monday, February 28th: The hacks that are up are working.
-**
+**UPDATE!! As Of 9:38AM On Monday, February 28th: The hacks that are up are working.**
 
 This is a secret alternate set of blooket hacks that work. 
 Make sure to type "javascript:" before any set of hacks you use. 
