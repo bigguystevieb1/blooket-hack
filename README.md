@@ -2,11 +2,8 @@
 
 **MAKE SURE TO TYPE "Javascript:" in the search bar before you paste the link or else the hacks won't work!**
 
-GOOD UPDATE!! I have fixed the "Max Tokens And XP." & "Spam Open Boxes" Please let me know if they don't work for you.
-
-UPDATE!! I am aware of some of the hacks not working, I am currently working on trying to fix some of them. Thank you for your patience.
-
-UPDATE!! As Of 12:42PM On Friday, February 25th: This may take awhile to fix. Thank you for your patience. I will be deleting every hack except for the "Coins and XP adder" I will re-add the others when they are fixed. Thank you again.
+**UPDATE!! As Of 9:38AM On Monday, February 28th: The hacks that are up are working.
+**
 
 This is a secret alternate set of blooket hacks that work. 
 Make sure to type "javascript:" before any set of hacks you use. 
