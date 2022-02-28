@@ -3,8 +3,8 @@
 **This is an alternate set of blooket hacks that work. 
 Make sure to type "javascript:" before any set of hacks you use. 
 If you have any concerns or find something wrong please @bigguystevieb1 in the issues tab. 
-I will usually respond within the week if not the same day you comment. Thanks!! :)
-**
+I will usually respond within the week if not the same day you comment. Thanks!! :)**
+
 
 **UPDATE!! As Of 9:40AM On Monday, February 28th: The hacks that are up are working.**
 
