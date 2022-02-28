@@ -6,7 +6,7 @@ If you have any concerns or find something wrong please @bigguystevieb1 in the i
 I will usually respond within the week if not the same day you comment. Thanks!! :)**
 
 
-**UPDATE!! As Of 9:50AM On Monday, February 28th: The hacks that are up are working.**
+**UPDATE!! As Of 1:00PM On Monday, February 28th: The hacks that are up are working.**
 
 **Also, If you are using an ad blocker, for some reason any ad blocker interferes with the hack, which will result in the hack not working, I highly suggest turning off your ad blocker or the hacks may not work.**
 
