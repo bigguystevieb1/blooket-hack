@@ -8,8 +8,10 @@
 
 **Find the hacks here:
 Add Tokens and XP: https://github.com/bigguystevieb1/blookethack/blob/main/Add%20Tokens%20And%20Max%20XP
-Sell Dupilcated Blooks: https://github.com/bigguystevieb1/blookethack/blob/main/Sell%20Duplicated%20Blooks
-Spam Open Boxes: https://github.com/bigguystevieb1/blookethack/blob/main/Spam%20Open%20Boxes**
+
+**Sell Dupilcated Blooks: https://github.com/bigguystevieb1/blookethack/blob/main/Sell%20Duplicated%20Blooks
+
+**Spam Open Boxes: https://github.com/bigguystevieb1/blookethack/blob/main/Spam%20Open%20Boxes**
 
 This is a secret alternate set of blooket hacks that work. 
 Make sure to type "javascript:" before any set of hacks you use. 
