@@ -1,6 +1,6 @@
 # readme-section-important
 
-**UPDATE!! As Of 12:00PM On Friday, March 4th: The hacks that are up are working.**
+**UPDATE!! As Of Friday, March 4th The hacks that are up are working.**
 
 **This is an alternate set of blooket hacks that work. 
 Make sure to type "javascript:" before any set of hacks you use. 
