@@ -2,6 +2,8 @@
 
 **UPDATE!! As Of Friday, March 4th The hacks that are up are working.**
 
+**LET ME KNOW IN THE ISSUES TAB WHAT HACKS I SHOULD DO FOR WHAT GAME MODE (BLOOKET ONLY) AND I WILL WORK ON IT!!**
+
 **This is an alternate set of blooket hacks that work. 
 Make sure to type "javascript:" before any set of hacks you use. 
 If you have any concerns or find something wrong please @bigguystevieb1 in the issues tab. 
