@@ -1,8 +1,5 @@
 # readme-section-important
 
-<!-- Start of CuterCounter Code -->
-<a href="https://www.webfreecounter.com/" target="_blank"><img src="https://www.cutercounter.com/hits.php?id=hxaookq&nd=1&style=1" border="0" alt="website counter"></a>
-<!-- End of CuterCounter Code -->
 
 **UPDATE!! As Of Friday, March 11th "The hacks that are up are working."**
 
