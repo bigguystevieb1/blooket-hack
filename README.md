@@ -3,7 +3,7 @@
 
 **UPDATE!! As Of Tuesday, March 15th "The hacks that are up are working."**
 
-**Unfortunately Blooket has removed the ability to use game mode hacks. I will try. Until I find a way as of now it is pretty much impossible for me to create game mode hacks.**
+**Unfortunately Blooket has removed the ability to use game mode hacks. As of now it is pretty much impossible for me to create game mode hacks.**
 
 **This is an alternate set of blooket hacks that work. 
 Make sure to type "javascript:" before any set of hacks you use. 
