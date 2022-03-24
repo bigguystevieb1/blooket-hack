@@ -1,7 +1,7 @@
 # readme-section-important
 
 
-**UPDATE!! As Of Tuesday, March 15th "The hacks that are up are working."**
+**UPDATE!! As Of Thursday, March 24th "The hacks that are up are working."**
 
 **Unfortunately Blooket has removed the ability to use game mode hacks. As of now it is pretty much impossible for me to create game mode hacks.**
 
